@@ -1,5 +1,5 @@
 ### WHEN I'M GONE
-![Album Cover](/images/)
+![Album Cover](Eminem.jpg)
 
 The single released by Eminem in the year 2005, was one of the best songs of that time. The song received most positive reviews from music critics.“When I’m Gone” was written in 2003 and released in 2005 by Shady Records, on the album Curtain Call: The Hits. It was thought at the time that this album would mark the beginning of an extended musical hiatus for Eminem, who had said:
 
