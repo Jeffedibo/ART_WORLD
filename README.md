@@ -11,3 +11,5 @@ Since then he's also managed to release hits such as:
 - I'm not afraid
 - River (ft Ed Sheeran)
 
+We hope to get to hear from him __and other artists__ in more years to come.
+
